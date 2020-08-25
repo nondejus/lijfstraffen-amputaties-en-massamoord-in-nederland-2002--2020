@@ -1,1 +1,0 @@
-# lijfstraffen-en-amputaties-in-nederland-2002--2020
